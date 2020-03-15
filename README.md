@@ -245,7 +245,7 @@ and the believing women, the alive from them and the dead.
 Prophet Muhammad SAW (PBUH) said: If somebody recites this invocation 
 (given below) during the day, and if he should die then, he will be 
 from the people of Jannah. And if he recites it in the night, and if he 
-should die on the same day, he will be from the people of Jannah.” **
+should die on the same day, he will be from the people of Jannah.”**
 
 Allahuma anta Rabbi la ilaha illa anta, Khalaqtani wa ana 'Abduka, wa ana
 'ala 'ahdika wa wa 'dika mastata 'tu, A 'udhu bika min Sharri ma sana'tu,
@@ -269,7 +269,6 @@ O, Allah! I seek refuge in You from knowingly associating partners with You,
 and I seek Your forgiveness for that which I do not know.
 
 Insya Allah, may it benefits you guys. Ameen
-
 
 
 [![Hear this story](https://img.youtube.com/vi/fbZbXIBCfFE/0.jpg)](http://www.youtube.com/watch?v=fbZbXIBCfFE)
