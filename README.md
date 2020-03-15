@@ -1,4 +1,7 @@
 # Way To Gain Forgiveness
+- [Power of Dua](#dua)
+
+> Collect from The Quran and Hadith
 
 **Here are 21 tips from our Prophet (saws) to help you erase your sins :**
 
@@ -97,3 +100,178 @@ Sa'd bin Abu Waqqas ( May Allah be pleased with him ) reported : We were with th
 "Allahuma Anta Rabbi, la ilaha illa Anta, khalaqtani wa ana 'abduka, wa ana 'ala 'ahdika wa wa'dika mastata'tu, a'udhu bika min sharri ma sana'tu, abu'u laka bini'matika 'alayya, wa abu'u laka bidhanbi faghfir li, fa innahu la yaghfirudh-dhunuba illa Anta." (O Allah! You are my Lord. There is no god except You. You have created, I am Your slave, I hold to Your Covenant as far as I can. I seek refuge in You from the evil of what I have done. I acknowledge the favours that You have bestowed upon me and I confess my sins. Pardon me, for none but You has the power to pardon). He who supplicates in these terms during the day with firm belief in it and dies on the same day (before the evening), he will be one of the dwellers of Jannah; anf if anyone supplicates in these terms during the night with firm belief in it and dies before the morning, he will be one of he dwellers of Jannah." [ Al-Bukhari ]
 
 May Allah erase our sins and save us from the torment of Hell. Ameen
+
+## Dua
+> Try to supplicate this dua every single day to become a habit.
+
+**1. Dua That Guarantees You Forgiveness (Sahih Al-Bukhari)
+Prophet Muhammad SAW (PBUH) said:
+"Whoever gets up at night and says:
+La ilaha 'illa Allaahu, wahdahu la shareeka 
+lahul mulku, wa lahul hamdu, wa huwa ala kulli shayin qadeer. 
+Subhana allaahi, wal hamdu lillaahi, wa la illaaha ila Allaah,
+wa Allaahu akbar, waLa hawla wa la quwwata illa billaah.
+
+There is none worthy of worship in truth except Allah Alone, 
+He has no partners, He has the Dominion and for Him is all praise, 
+and He is capable of all things, praise is for Him, 
+and Far is Allah from imperfection, 
+and There is none worthy of worship in truth except Allah, 
+and Allah is the Greatest, 
+there is no capability nor is there any power except with Allah.
+
+"Then he says:
+Allaahumma aghfirlee.
+
+O Allah forgive me! 
+
+Or he supplicates and his supplication is answered, 
+and if he makes Wudhu and prays, then his prayer is accepted.
+
+**2. Dua That Guarantees You Jannah (Sahih Al-Jami, An-Nasa'i, Ibn Hibban)
+Prophet Muhammad SAW (PBUH) said:
+"Whoever recites Ayatul Kursi, verse 255 from chapter number 2, 
+Surat Al Baqarah after every obligatory prayer,
+then nothing is stopping him or her from entering Jannah, 
+except one thing: Death."
+
+**3. Dua That Wipe Away Sins (Sahih Al-Bukhari, Muslim, At-Tirmidhi)
+Prophet Muhammad SAW (PBUH) said:
+"Whoever says:
+Subhana allaahi, wa bihamdih
+
+How far from imperfections Allah is, and I praise Him.
+
+"a hundred times during the day, his sins are wiped away,
+even if they are like the foam of the sea."
+
+**4. Phrases That Are Heavier On The Scales Than An Entire Morning Of
+   Recitation (Sahih Muslim)
+Prophet Muhammad SAW (PBUH) said:
+"I recited four words three times after I had left you. 
+If these are to be weighed against all you have recited since morning, 
+these will be heavier." These are:
+Subhan-Allahi wa bihamdihi, 'adada khalqihi, wa rida nafsihi, 
+wa zinatah 'arshihi, wa midada kalimatihi.
+
+Allah is free from imperfection and I begin with His praise, 
+as many times as the number of His creatures, 
+in accordance with His Good Pleasure, equal to the weight of His Throne
+and equal to the ink that may be used in recording the words
+(for His Praise).
+
+**5. Dua To Stay On The Right Path (Sahih Muslim)
+
+Ya musarrifa-l quloobi sarrif qalbi ala ta’atik.
+
+O, Allah! The One Who turns the hearts, 
+turn my heart towards Your obedience.
+
+**6. Dua To Be Save From Totrments Of Grave
+
+Allahumma inni wa a'udhu bika min adhabil qabri
+
+O, Allah! Saves us from the torments of the grave.
+
+**7. Dua For The Best In The Dunya And Hereafter
+
+Rabbana atina fid-dunya hasanatan, wa fil'akhirati hasanatan,
+waqina 'adhaban-nar.
+
+O, Allah! Our Lord give us all the good of this world,
+and the good of the hereafter, 
+and Save us from the punishment of the Fire.
+
+**8. Dua To Help Pay Off Your Debts (Sahih At-Tirmidhi)
+
+Allahum-makfinee bi halaalika 'an haraamika wa aghninee bifadhlika
+'amman siwaaka
+
+O, Allah! Suffice me with what You have allowed instead of what You
+have forbidden, and make me independent of all others besides You.
+
+**9. Dua Of The Treasures Of Paradise (Sahih Al-Bukhari, At-Tirmidhi)
+Prophet Muhammad SAW (PBUH) said:
+"Shall I not tell you of a word which is one of the treasures of 
+Paradise?"
+
+La hawla wa la quwaata illa billah
+
+There is no power and no strength except with Allah.
+
+**10. Dua To Literally Boost Your Energy
+Before you sleep recite: 
+Subhana allaah 33x, Alhamdulilah 33x, 
+Allahu akbar 34x
+
+**11. Dua That Protects You From All Evil, Magic And Affliction
+(Sahih Ibn Majah, Abu Dawud, At-Tirmidhi)
+
+Bismillaahil-lathee laa yadhurru ma'as-mihi shay'un fil-'ardhi wa laa 
+fis-samaa'i wa Huwas-Samee'ul-'Aleem.
+
+In the Name of Allah, Who with His Name nothing can cause harm in the 
+earth nor in the heavens, and He is the All-Hearing, the All-Knowing.
+
+**12. Dua To Get Prophet Muhammad SAW (PBUH) Help in Yawm Al Qiyamah
+(Sahih Al-Bukhari)
+Prophet Muhammad SAW (PBUH) said:
+"Whoever says the following, after hearing the call of adhan, 
+the call of prayer I will intercede for them yawm al qiyamah."
+
+Allaahumma Rabba haathihid-da 'watit-taammati wassalaatil-qaa'imatah, 
+Aati Muhammadanil-waseelata walfadheelah, Wab 'ath-hu 
+maqaamam-mahmoodanil-lathee wa'adtah.
+
+O, Allah! the Lord of this perfect call, and the lord of the prayer 
+that is about to be established, grant Prophet Muhammad (PBUH)
+al waseela, Resurrect him with that status, that is so praise worthy,
+which you have already promised.
+
+**13. Dua Forgiveness All Believers
+
+Allahumma ighfir lil muslimeena wal-muslimaat, wal-mu'mineena 
+wal-mu'minaat, al-ahyaa'i minhom wal-amwat.
+
+O, Allah! forgive the Muslim men and Muslim women, the believing men 
+and the believing women, the alive from them and the dead.
+
+**14. Benefits Reciting Surah Ikhlas
+- Reciting 3 times a day is equivalent to reciting the whole Qur'an.
+- Reciting 10 times a day and Allah will build for him a house in paradise.
+
+**15. Sayyidul Istighfar (Sahih Al-Bukhari, Sahih Al-Jami, At-Tirmidhi)
+Prophet Muhammad SAW (PBUH) said: If somebody recites this invocation 
+(given below) during the day, and if he should die then, he will be 
+from the people of Jannah. And if he recites it in the night, and if he 
+should die on the same day, he will be from the people of Jannah.” 
+
+Allahuma anta Rabbi la ilaha illa anta, Khalaqtani wa ana 'Abduka, wa ana
+'ala 'ahdika wa wa 'dika mastata 'tu, A 'udhu bika min Sharri ma sana'tu,
+abu'u Laka bini'matika'alaiya, wa abu'u laka bidhanbi faghfir lee fa innahu
+la yaghfiru adhdhunuba illa anta.
+
+
+O, Allah! You are my Lord! None has the right to be worshipped but You. You
+created me and I am Your slave, and I am faithful to my convenant and my 
+promise as much as I can. I seek refuge with You from all the evil I have
+done. I acknowledge before You all the blessings You have bestowed upon me,
+and I confess to You all my sins. So I entreat You to forgive my sins, for
+nobody can forgive sins except You.
+
+**16. Dua For Protection From Shirk
+
+Allahumma inni a'udhu bika an ushrika bika wa ana a'lamu wa astaghfiruka 
+lima la a'lamu
+
+O, Allah! I seek refuge in You from knowingly associating partners with You, 
+and I seek Your forgiveness for that which I do not know.
+
+Insya Allah, may it benefits you guys. Ameen
+
+
+
+[![Hear this story](https://img.youtube.com/vi/fbZbXIBCfFE/0.jpg)](http://www.youtube.com/watch?v=fbZbXIBCfFE)
+
+[![Hear this story](https://img.youtube.com/vi/fbZbXIBCfFE/0.jpg)](http://www.youtube.com/watch?v=fbZbXIBCfFE)
+[![Hear this story](https://img.youtube.com/vi/fbZbXIBCfFE/0.jpg)](http://www.youtube.com/watch?v=fbZbXIBCfFE)
