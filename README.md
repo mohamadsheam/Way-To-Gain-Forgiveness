@@ -1,7 +1,8 @@
 # Way To Gain Forgiveness
-- [Power of Dua](#dua)
 
 > Collect from The Quran and Hadith
+
+- [Read Power of Dua](#dua)
 
 **Here are 21 tips from our Prophet (saws) to help you erase your sins :**
 
@@ -110,7 +111,7 @@ Prophet Muhammad SAW (PBUH) said:
 La ilaha 'illa Allaahu, wahdahu la shareeka 
 lahul mulku, wa lahul hamdu, wa huwa ala kulli shayin qadeer. 
 Subhana allaahi, wal hamdu lillaahi, wa la illaaha ila Allaah,
-wa Allaahu akbar, waLa hawla wa la quwwata illa billaah.
+wa Allaahu akbar, waLa hawla wa la quwwata illa billaah.**
 
 There is none worthy of worship in truth except Allah Alone, 
 He has no partners, He has the Dominion and for Him is all praise, 
@@ -133,12 +134,12 @@ Prophet Muhammad SAW (PBUH) said:
 "Whoever recites Ayatul Kursi, verse 255 from chapter number 2, 
 Surat Al Baqarah after every obligatory prayer,
 then nothing is stopping him or her from entering Jannah, 
-except one thing: Death."
+except one thing: Death."**
 
 **3. Dua That Wipe Away Sins (Sahih Al-Bukhari, Muslim, At-Tirmidhi)
 Prophet Muhammad SAW (PBUH) said:
 "Whoever says:
-Subhana allaahi, wa bihamdih
+Subhana allaahi, wa bihamdih**
 
 How far from imperfections Allah is, and I praise Him.
 
@@ -152,7 +153,7 @@ Prophet Muhammad SAW (PBUH) said:
 If these are to be weighed against all you have recited since morning, 
 these will be heavier." These are:
 Subhan-Allahi wa bihamdihi, 'adada khalqihi, wa rida nafsihi, 
-wa zinatah 'arshihi, wa midada kalimatihi.
+wa zinatah 'arshihi, wa midada kalimatihi.**
 
 Allah is free from imperfection and I begin with His praise, 
 as many times as the number of His creatures, 
@@ -160,20 +161,20 @@ in accordance with His Good Pleasure, equal to the weight of His Throne
 and equal to the ink that may be used in recording the words
 (for His Praise).
 
-**5. Dua To Stay On The Right Path (Sahih Muslim)
+**5. Dua To Stay On The Right Path (Sahih Muslim)**
 
 Ya musarrifa-l quloobi sarrif qalbi ala ta’atik.
 
 O, Allah! The One Who turns the hearts, 
 turn my heart towards Your obedience.
 
-**6. Dua To Be Save From Totrments Of Grave
+**6. Dua To Be Save From Totrments Of Grave**
 
 Allahumma inni wa a'udhu bika min adhabil qabri
 
 O, Allah! Saves us from the torments of the grave.
 
-**7. Dua For The Best In The Dunya And Hereafter
+**7. Dua For The Best In The Dunya And Hereafter**
 
 Rabbana atina fid-dunya hasanatan, wa fil'akhirati hasanatan,
 waqina 'adhaban-nar.
@@ -182,7 +183,7 @@ O, Allah! Our Lord give us all the good of this world,
 and the good of the hereafter, 
 and Save us from the punishment of the Fire.
 
-**8. Dua To Help Pay Off Your Debts (Sahih At-Tirmidhi)
+**8. Dua To Help Pay Off Your Debts (Sahih At-Tirmidhi)**
 
 Allahum-makfinee bi halaalika 'an haraamika wa aghninee bifadhlika
 'amman siwaaka
@@ -193,7 +194,7 @@ have forbidden, and make me independent of all others besides You.
 **9. Dua Of The Treasures Of Paradise (Sahih Al-Bukhari, At-Tirmidhi)
 Prophet Muhammad SAW (PBUH) said:
 "Shall I not tell you of a word which is one of the treasures of 
-Paradise?"
+Paradise?"**
 
 La hawla wa la quwaata illa billah
 
@@ -202,10 +203,10 @@ There is no power and no strength except with Allah.
 **10. Dua To Literally Boost Your Energy
 Before you sleep recite: 
 Subhana allaah 33x, Alhamdulilah 33x, 
-Allahu akbar 34x
+Allahu akbar 34x**
 
 **11. Dua That Protects You From All Evil, Magic And Affliction
-(Sahih Ibn Majah, Abu Dawud, At-Tirmidhi)
+(Sahih Ibn Majah, Abu Dawud, At-Tirmidhi)**
 
 Bismillaahil-lathee laa yadhurru ma'as-mihi shay'un fil-'ardhi wa laa 
 fis-samaa'i wa Huwas-Samee'ul-'Aleem.
@@ -217,7 +218,7 @@ earth nor in the heavens, and He is the All-Hearing, the All-Knowing.
 (Sahih Al-Bukhari)
 Prophet Muhammad SAW (PBUH) said:
 "Whoever says the following, after hearing the call of adhan, 
-the call of prayer I will intercede for them yawm al qiyamah."
+the call of prayer I will intercede for them yawm al qiyamah."**
 
 Allaahumma Rabba haathihid-da 'watit-taammati wassalaatil-qaa'imatah, 
 Aati Muhammadanil-waseelata walfadheelah, Wab 'ath-hu 
@@ -228,7 +229,7 @@ that is about to be established, grant Prophet Muhammad (PBUH)
 al waseela, Resurrect him with that status, that is so praise worthy,
 which you have already promised.
 
-**13. Dua Forgiveness All Believers
+**13. Dua Forgiveness All Believers**
 
 Allahumma ighfir lil muslimeena wal-muslimaat, wal-mu'mineena 
 wal-mu'minaat, al-ahyaa'i minhom wal-amwat.
@@ -236,7 +237,7 @@ wal-mu'minaat, al-ahyaa'i minhom wal-amwat.
 O, Allah! forgive the Muslim men and Muslim women, the believing men 
 and the believing women, the alive from them and the dead.
 
-**14. Benefits Reciting Surah Ikhlas
+**14. Benefits Reciting Surah Ikhlas**
 - Reciting 3 times a day is equivalent to reciting the whole Qur'an.
 - Reciting 10 times a day and Allah will build for him a house in paradise.
 
@@ -244,7 +245,7 @@ and the believing women, the alive from them and the dead.
 Prophet Muhammad SAW (PBUH) said: If somebody recites this invocation 
 (given below) during the day, and if he should die then, he will be 
 from the people of Jannah. And if he recites it in the night, and if he 
-should die on the same day, he will be from the people of Jannah.” 
+should die on the same day, he will be from the people of Jannah.” **
 
 Allahuma anta Rabbi la ilaha illa anta, Khalaqtani wa ana 'Abduka, wa ana
 'ala 'ahdika wa wa 'dika mastata 'tu, A 'udhu bika min Sharri ma sana'tu,
@@ -259,7 +260,7 @@ done. I acknowledge before You all the blessings You have bestowed upon me,
 and I confess to You all my sins. So I entreat You to forgive my sins, for
 nobody can forgive sins except You.
 
-**16. Dua For Protection From Shirk
+**16. Dua For Protection From Shirk**
 
 Allahumma inni a'udhu bika an ushrika bika wa ana a'lamu wa astaghfiruka 
 lima la a'lamu
@@ -271,7 +272,4 @@ Insya Allah, may it benefits you guys. Ameen
 
 
 
-[![Hear this story](https://img.youtube.com/vi/fbZbXIBCfFE/0.jpg)](http://www.youtube.com/watch?v=fbZbXIBCfFE)
-
-[![Hear this story](https://img.youtube.com/vi/fbZbXIBCfFE/0.jpg)](http://www.youtube.com/watch?v=fbZbXIBCfFE)
 [![Hear this story](https://img.youtube.com/vi/fbZbXIBCfFE/0.jpg)](http://www.youtube.com/watch?v=fbZbXIBCfFE)
