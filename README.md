@@ -268,6 +268,10 @@ lima la a'lamu
 O, Allah! I seek refuge in You from knowingly associating partners with You, 
 and I seek Your forgiveness for that which I do not know.
 
+**17. "Allaahumma Solli 'alaa muhammadinin nabeeyil ummeeyi wa 'alaa aalihi wa sallim tasleema"**
+Aboo Hurayah radhiyallahu anhu reports:
+The person who recites eighty times on the day of Friday (the following durood) immediately after the 'Asr Salat, before standing up from his place, eighty years of his sins will be forgiven by Allah, and the reward equivalent to the worship of eighty years will be written for him.
+
 Insya Allah, may it benefits you guys. Ameen
 
 
